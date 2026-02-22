@@ -37,7 +37,7 @@
 
 ###
 
-<p align="left">● Haze Academy: https://discord.gg/3Ypw3EtyR8</p>
+<p align="left">● Haze Academy: Em Breve
 
 ###
 
