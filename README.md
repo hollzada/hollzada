@@ -39,6 +39,8 @@
 
 <p align="left">● Haze Academy: Em Breve
 
+<p align="left">● Las Venturas Roleplay: Em Breve
+
 ###
 
 <h3 align="left">🤓 My knowledge</h3>
